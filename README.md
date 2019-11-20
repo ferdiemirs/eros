@@ -1,1 +1,1 @@
-# eros
+# eros-gaming-tr
